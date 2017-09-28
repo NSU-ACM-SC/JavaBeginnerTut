@@ -8,4 +8,4 @@
 https://rockash93.wordpress.com/2016/01/14/জাভা-প্রোগ্রামিং-শুরু-কর/
 
 3. জাভা প্রোগ্রামিং # ৩ – শুরু করি
-https://rockash93.wordpress.com/2016/01/14/জাভা-প্রোগ্রামিং-শুরু-কর/
+https://goo.gl/mwALDs
